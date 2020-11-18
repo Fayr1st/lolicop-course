@@ -1,0 +1,2 @@
+# lolicop-course
+random thingy
